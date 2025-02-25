@@ -2,5 +2,6 @@ theme: minima
 title: Arts
 author: Histwo
 description: the Creator's Use of the Arts
+list_title: Insights
 minima:
   show_excerpts: true
