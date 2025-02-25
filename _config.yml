@@ -1,0 +1,6 @@
+theme: minima
+title: Arts
+author: Histwo
+description: the Creator's Use of the Arts
+minima:
+  show_excerpts: true
