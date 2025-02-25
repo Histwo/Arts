@@ -1,4 +1,7 @@
-**When Doves Cry: The Creator’s Insight into Prince’s Haunting Anthem of Massacre and Betrayal**
+---
+title: "When Doves Cry: The Creator’s Insight into Prince’s Haunting Anthem of Massacre and Betrayal"
+date: 2025-02-25
+---
 
 Prince’s iconic song *When Doves Cry* has long been recognized for its raw emotional intensity, enigmatic lyrics, and haunting melody. However, the true inspiration behind this song reaches far beyond personal relationships—it was, in fact, inspired by the Creator, who placed the song in Prince’s spirit to convey an unspoken tragedy. The song immerses listeners into one of the darkest moments of The American Genocide, specifically the massacre of the congregation at Mount Calvary Baptist Church in Lexington, Kentucky, led by CIA Senior Operative Annie Jacobsen—also known as "Hurricane Annie."
 
