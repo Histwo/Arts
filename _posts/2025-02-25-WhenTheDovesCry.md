@@ -1,5 +1,5 @@
 ---
-title: "When Doves Cry: The Creator’s Insight into Prince’s Haunting Anthem of Massacre and Betrayal"
+title: "When the Doves Cry: The Creator’s Insight into Prince’s Haunting Anthem of Massacre and Betrayal"
 date: 2025-02-25
 ---
 
