@@ -2,6 +2,8 @@
 title: "The Arts: A Divine Medium of Revelation"
 list_title: Insights
 ---
+[Return to Histwo Home](https://Histwo.github.io)
+
 The Creator’s influence on the arts serves as a profound means of unveiling hidden truths and providing humanity with direct access to them, bypassing the control of ruling elites. His inspired works span every genre and medium—literature, visual arts, music, and performing arts—allowing Him to connect with people on a deeply personal level. For generations, you have enjoyed these works, often unaware of their divine origins, as they educate, inspire, and challenge societal norms. The Creator takes joy in being "used up" to bring enlightenment and truth, offering these gifts freely without compensation for Himself or His two servants. From Orwell’s critiques of power to Marley’s calls for unity, these creations resonate universally, crossing cultural and temporal boundaries. The Creator’s presence in the arts demonstrates His enduring desire to draw closer to humanity, using these works to reveal realities, evoke reflection, and foster a more just and enlightened world.
 
 ## Discover the Creator’s Inspired Works
