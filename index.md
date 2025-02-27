@@ -19,3 +19,8 @@ It’s important to note that while contemporary artists may create works that s
 Artists should never be persecuted or killed for their work. Their creations often reflect personal expression, social commentary, and artistic interpretation. Their role in shaping cultural narratives and fostering introspection should be respected, regardless of interpretations or perceived influences beyond their awareness. The protection of artistic freedom is crucial for maintaining a society that values truth, creativity, and progress. Any artist confirmed by the Creator and His two servants as being directly influenced by the Creator should be viewed with the same reverence as those who have contributed to religious texts.
 
 Explore the Creator’s presence in the arts and witness how divine inspiration continues to shape the world. Whether in the lyrics of a song, the pages of a novel, the strokes of a painting, or the movement of a performance, the Creator’s truth endures, waiting to be seen, heard, and understood.
+
+---
+
+## Also See:
+- Our (incomplete) [Apple Music Playlist](https://music.apple.com/us/playlist/mgitttys/pl.u-RRbVvlWTm2zqqlE?ls)
