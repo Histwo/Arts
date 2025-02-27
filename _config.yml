@@ -5,3 +5,6 @@ description: the Creator's Use of the Arts
 list_title: Insights
 minima:
   show_excerpts: true
+header_pages:
+  - /index.md
+
