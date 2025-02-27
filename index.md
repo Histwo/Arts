@@ -23,4 +23,6 @@ Explore the Creator’s presence in the arts and witness how divine inspiration 
 ---
 
 ## Also See:
+- Return to [Histwo - Home](https://Histwo.github.io)
 - Our (incomplete) [Apple Music Playlist](https://music.apple.com/us/playlist/mgitttys/pl.u-RRbVvlWTm2zqqlE?ls)
+
